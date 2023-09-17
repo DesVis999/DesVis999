@@ -7,6 +7,7 @@ AROACE, MARRIED PLATONICALLY.
 
 🇧🇾🇫 ==> I am shy, and I'm defensive easily. I used Tone tagz, tell me if you do not like tone tagz and i will stop using them!
 I can be very touchy when my "TC", "C + H", or "FREE CUDZ" are in my name. Occasionally, I may use a typing quirk. More below.
+
 🇩🇳🇮 ==> Zooz, Pedos, HOmo/transphobe, Racists, Neopronoun haterz, OMORI fandom, Killing/stalking fandom, Frans/Chans shipperz, proshitterz, FK haterz, Therian/Furry haterz, Otherkin haterz. 
 
 
