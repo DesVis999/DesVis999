@@ -1,20 +1,26 @@
-Hello! I'm Cross, They/he, 15 y/o. Skelekin/Skeleton otherkin.
+<b>Hello! I'm Cross, They/he, 15 y/o. Skelekin/Skeleton otherkin.</b>
 
 AROACE, MARRIED PLATONICALLY.
 
+🟢 - With Close friends, may not be wantint to interact,
+
+🌙 - Online, but switching tabs!
+
+⛔ - Short interactions are fine, may be uncomfy during long interactions
+
+💬 - PLEASE INTERACT I'M BEGGING YOU
+
+🎭 - I am in the mood for roleplay (rare)
 
 
 
-🇧🇾🇫 ==> I am shy, and I'm defensive easily. I used Tone tagz, tell me if you do not like tone tagz and i will stop using them!
+𝓑𝓨𝓕 ==> I am shy, and I'm defensive easily. I used Tone tagz, tell me if you do not like tone tagz and i will stop using them!
 I can be very touchy when my "TC", "C + H", or "FREE CUDZ" are in my name. Occasionally, I may use a typing quirk. More below.
 
-🇩🇳🇮 ==> Zooz, Pedos, HOmo/transphobe, Racists, Neopronoun haterz, OMORI fandom, Killing/stalking fandom, Frans/Chans shipperz, proshitterz, FK haterz, Therian/Furry haterz, Otherkin haterz. 
+𝓓𝓝𝓘 ==> Zooz, Pedos, HOmo/transphobe, Racists, Neopronoun haterz, OMORI fandom, Killing/stalking fandom, Frans/Chans shipperz, proshitterz, FK haterz, Therian/Furry haterz, Otherkin haterz. 
 
 
 
-FANDOMS!!
-
-UNDERTALE!!! (biggest fandom!!), Creepypasta, Warriorz, Animatronic anything, FNaF, & more
 
 OCCASIONALLY, i may have certain PONYTOWN TAGS.
 
@@ -36,24 +42,11 @@ DNIUCF ---> Likely too upset, or moody, to talk to anyone who is not my close fr
 
 TD ---> Touch discomfort, Sit next to me but anything else is tm
 
-TC ---> Touch COmfort, I love touch at this moment! Cuddles or sitting next to me is fine!!
-
-C + H ---> Same as above
-
-FREECUDZ ---> Same as above, may not want to speak to someone.
+TC, C + H, FREECUDZ ---> Touch COmfort, I love touch at this moment! Cuddles or sitting next to me is fine!!
 
 
-🟢 - With Close friends, may not be wantint to interact,
 
-🌙 - Online, but switching tabs!
-
-⛔ - Short interactions are fine, may be uncomfy during long interactions
-
-💬 - PLEASE INTERACT I'M BEGGING YOU
-
-🎭 - I am in the mood for roleplay (rare)
-
-TYPING QUIRKS
+𝓣𝓨𝓟𝓘𝓝𝓖 𝓠𝓤𝓘𝓡𝓚𝓢
 
 NO 1. ==> S0m3tim3s i may us3 numb3rs l1k3 th1s. Usually this is because Error shifted
 
