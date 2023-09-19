@@ -1,6 +1,7 @@
 <b>Hello! I'm Cross, They/he, 15 y/o. Skelekin/Skeleton otherkin.</b>
 
-AROACE, MARRIED PLATONICALLY.
+AROACE, MARRIED PLATONICALLY. 
+
 
 🟢 - With Close friends, may not be wantint to interact,
 
@@ -42,7 +43,10 @@ DNIUCF ---> Likely too upset, or moody, to talk to anyone who is not my close fr
 
 TD ---> Touch discomfort, Sit next to me but anything else is tm
 
+TR ---> Touch Repulsed, Disgusted by touch. Do not touch me. [Full Error shift likely, be wary for a bad mood]
+
 TC, C + H, FREECUDZ ---> Touch COmfort, I love touch at this moment! Cuddles or sitting next to me is fine!!
+
 
 
 
