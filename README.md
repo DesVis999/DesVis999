@@ -32,7 +32,9 @@ DNIUID ---> DO NOT INTERACT UNLESS I DO
 
 DNIUF ---> Too anxious to talk to strangers
 
-DNIUCF ---> Likely too upset, or moody, to talk to anyone aside from; Aki, Ezra, Lizzie, Zander, Berry, or Fandom.
+DNIUCF ---> Do not interact unless close friend. Likely too upset, or moody, to talk to anyone aside from; Aki, Ezra, Lizzie, Zander, Berry, or Fandom.
+
+IWC ---> Interact With Caution, something may have occured to make me moody
 
 
 TC, C + H, FREECUDZ ---> Touch COmfort, I love touch at this moment! Cuddles or sitting next to me is fine!!
