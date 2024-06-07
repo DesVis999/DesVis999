@@ -1,4 +1,4 @@
-<b>Hello! I'm Cross, They/he, 15 y/o.</b>
+<b>Hello! I'm Cross, They/he, 16 y/o.</b>
 
 AROACE, MARRIED PLATONICALLY. 
 
