@@ -1,6 +1,6 @@
 **Hello! I'm Cross, They/he, 16 y/o.**
 
-AROACE , NO GENDER .
+AROACE , NO GENDER . AUDHD, ANXIETY .
 
 
 **DNI; proship. Basics, racists, ableists, etc.**
@@ -15,6 +15,7 @@ AROACE , NO GENDER .
 - Pitaya Dragon
 - Cross sans
 
+**[SHIPS]**
 - PayJay
 - Candlespoon
 - Saltpep (onesided)
