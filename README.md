@@ -1,6 +1,6 @@
 ![alt text](https://media1.tenor.com/m/8SkJd2pOtQkAAAAC/inanimate-insanity-ii.gif "MEPHONE4 IS MY SON")
 
-**Hello! I'm Cross, They/he, 16 y/o.**
+**Hello! I'm Cross, They/he, 17 y/o.**
 
 AROACE , NO GENDER . AUDHD, ANXIETY .
 
