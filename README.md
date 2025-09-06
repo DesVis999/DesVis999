@@ -8,8 +8,8 @@ AROACE , NO GENDER .
 **[OSC , UTAU , CRK/CROB fan.]**
 
 **[FAVES]**
-*- Airy*
-*- Mephone4*
+- *Airy*
+- *Mephone4*
 - Nokia & Siri
 - Burning Spice
 - Pitaya Dragon
@@ -22,3 +22,5 @@ AROACE , NO GENDER .
 - Lightbrush
 - Cabtube (onesided)
 - Hollytaya
+
+italics - faves.
