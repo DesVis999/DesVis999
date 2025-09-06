@@ -12,6 +12,9 @@ AROACE , NO GENDER . AUDHD, ANXIETY .
 **[FAVES]**
 - *Airy*
 - *Mephone4*
+- Knife
+- Paper
+- OJ
 - Nokia & Siri
 - Burning Spice
 - Pitaya Dragon
