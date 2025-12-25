@@ -24,7 +24,7 @@ AROACE , NO GENDER . AUDHD, ANXIETY .
 
 **[KINS]**
 - Sun Wukong , MK , Ne Zha (LMK)
-- Zro , BFDI .(BFDI)
+- Zro , BFDI (BFDI)
 - MePad (II)
 - Michael (LOTS*)
 
