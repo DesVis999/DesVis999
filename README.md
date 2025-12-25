@@ -27,5 +27,6 @@ AROACE , NO GENDER . AUDHD, ANXIETY .
 - Zro , BFDI (BFDI)
 - MePad (II)
 - Michael (LOTS*)
+I am awkward around doubles ; But you can still interact !!
 
 ![alt text](https://media1.tenor.com/m/HufcmRVkbf0AAAAd/ao-lie-lego-monkie-kid.gif "I LOVE AO LIE!!")
