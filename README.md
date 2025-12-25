@@ -7,7 +7,7 @@ AROACE , NO GENDER . AUDHD, ANXIETY .
 
 **DNI; proship. Basics, racists, ableists, etc.**
 
-**[OSC , UTAU , CRK/CROB fan.]**
+**[LMK , OSC , UTAU , CRK/CROB fan.]**
 
 **[FAVES]**
 - Ao Lie (LMK)
