@@ -23,6 +23,4 @@ AROACE , NO GENDER . AUDHD, ANXIETY .
 - ZroTeen
 - Hollytaya
 
-italics - faves.
-
 ![alt text](https://media1.tenor.com/m/HufcmRVkbf0AAAAd/ao-lie-lego-monkie-kid.gif "I LOVE AO LIE!!")
