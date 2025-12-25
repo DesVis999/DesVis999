@@ -11,7 +11,6 @@ AROACE , NO GENDER . AUDHD, ANXIETY .
 
 **[FAVES]**
 - Ao Lie (LMK)
-- Sun Wukong (LMK)
 - Fifteen (BFDI)
 - Nokia & Siri (BFNIF)
 - Burning Spice (CRK)
@@ -22,5 +21,11 @@ AROACE , NO GENDER . AUDHD, ANXIETY .
 - PayJay
 - ZroTeen
 - Hollytaya
+
+**[KINS]**
+- Sun Wukong , MK , Ne Zha (LMK)
+- Zro , BFDI .(BFDI)
+- MePad (II)
+- Michael (LOTS*)
 
 ![alt text](https://media1.tenor.com/m/HufcmRVkbf0AAAAd/ao-lie-lego-monkie-kid.gif "I LOVE AO LIE!!")
